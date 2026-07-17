@@ -1,1 +1,1 @@
-# eaner
+google.com, pub-8867764625278245, DIRECT, f08c47fec0942fa0
